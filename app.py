@@ -1,0 +1,1 @@
+bu calisma vsc da yapildi
